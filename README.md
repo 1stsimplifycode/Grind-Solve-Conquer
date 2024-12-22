@@ -1,1 +1,0 @@
-# Grind-Solve-Conquer
